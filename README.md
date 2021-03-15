@@ -8,5 +8,7 @@ Olá! Bem vindo ao meu livro de receitas :v:
 
 - **Pudim de leite**:purple_heart::1st_place_medal:
 
+- **Bolo de banana​**:banana:
+
   
 
