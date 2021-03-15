@@ -2,13 +2,15 @@
 
 Olá! Bem vindo ao meu livro de receitas :v:
 
-- #### Brigradeiro
+- #### Brigradeiro :chocolate_bar:
 
 - #### Pavê de limão:lemon:
 
 - **Pudim de leite**:purple_heart::1st_place_medal:
 
-- **Bolo de banana​**:banana:
+- #### **Bolo de banana​**:banana:
 
+  
+  
   
 
