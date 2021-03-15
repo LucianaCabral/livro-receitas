@@ -10,6 +10,8 @@ Olá! Bem vindo ao meu livro de receitas :v:
 
 - #### **Bolo de banana​**:banana:
 
+- #### Bolo de cenoura:carrot:
+
   
   
   
