@@ -6,7 +6,7 @@ Olá! Bem vindo ao meu livro de receitas :v:
 
 - #### Pavê de limão:lemon:
 
-- **Pudim de leite**:purple_heart:
+- **Pudim de leite**:purple_heart::1st_place_medal:
 
   
 
